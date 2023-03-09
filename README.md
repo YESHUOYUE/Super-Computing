@@ -29,5 +29,6 @@ https://blog.csdn.net/m0_73799537?spm=1000.2115.3001.5343
 
 **“一以贯之的努力，不得懈怠的人生，每天的微小积累会决定最终结果，这就是答案。”**
 
-![WeChat Image_20230309145141](https://user-images.githubusercontent.com/116483698/223943497-479bad97-91ad-452f-bc24-d5c101018193.jpg)
+**希望在接下来的日子里和大家一起努力！！**
 
+![WeChat Image_20230309145141](https://user-images.githubusercontent.com/116483698/223943497-479bad97-91ad-452f-bc24-d5c101018193.jpg)
